@@ -11,4 +11,3 @@
 >Some very specific but seemingly mundane behaviors, when applied, produce the capacity to exist in a kind of sophisticated spontaneity, which, in my experience, is a key element to a successful life.
 >
 >— David Allen
-
